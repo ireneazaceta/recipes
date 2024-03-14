@@ -8,4 +8,5 @@
   
 ## Instructions
 
- - Put it all in a palillo: 1 pepper, 2 olives, 2 anchoi, 1 olive, 1 pepper, and enjoy.
+ - Put it all in a palillo: 1 pepper, 1 olive, 2 anchoi, 1 olive, 1 pepper.
+ - Enjoy!!
