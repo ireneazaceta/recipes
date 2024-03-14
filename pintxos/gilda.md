@@ -2,4 +2,8 @@
 
 ## Ingredients
 
+ - Olive
+ - Anchoi
+ - pepper 
+  
 ## Instructions
